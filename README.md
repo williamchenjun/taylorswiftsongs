@@ -1,4 +1,4 @@
-# Taylor Swift Songs (Taylor Swift to TTPD)
+# Taylor Swift Song Lyrics (Taylor Swift to TTPD)
 > Last updated: April 2024. <br>
 > Last re-recording: 1989 TV.
 
